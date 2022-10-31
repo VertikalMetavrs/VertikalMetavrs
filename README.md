@@ -1,5 +1,5 @@
 # Vertikal Metaverse
-The Culture & Art District Metaverse, for artists, digital art collectors and pioneers of Web 3
+The Culture & Art District of the Metaverse, for artists, digital art collectors and pioneers of Web 3
 
 Find us on:
 - [Our website](https://www.vertikal.art/)
